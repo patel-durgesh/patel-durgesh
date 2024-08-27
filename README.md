@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **pateldurgesh762@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1iZw40yUaMDaTfdwt8lyx2RGpGSOFK43U/view?usp=drivesdk]]
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1iZw40yUaMDaTfdwt8lyx2RGpGSOFK43U/view?usp=drivesdk]](https://drive.google.com/file/d/1R68oClIzph3EesZVcSXSpganIXmwx-2L/view?usp=drivesdk)
 
 - ⚡ Fun fact **Cool Guy😎**
 
